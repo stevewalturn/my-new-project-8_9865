@@ -1,1 +1,1 @@
-# my-new-project-8_9865
+# tamagochi-apps-10
